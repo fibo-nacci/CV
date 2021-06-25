@@ -33,7 +33,8 @@
 
 #### Dive Centre Manager and Scuba Instructor, The Dive Adventure 
 * taught a wide range of customers how to dive safely and responsibly 
-* ensured all equipment was in good working order • managed a number of staff to ensure smooth running of business 
+* ensured all equipment was in good working order • 
+* managed a number of staff to ensure smooth running of business 
 * day to day management of business
 
 #### JIT Logistics, BMW 
