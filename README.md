@@ -10,7 +10,7 @@
 
 # WORK EXPERIENCE
 ####  Bike Mechanic Margaret Carey Foundation, 
-#### Shipley - 2014 to Present 
+
 * inspected bicycles on arrival, analysed problems and suggested solutions 
 * recycled bicycles, replaced and repaired bicycles parts • undertook safety and quality checks 
 * operated an electronic till and took customer payment 
