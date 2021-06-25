@@ -31,13 +31,13 @@
 * taught adults in a university and corporate setting 
 * attended at international companies to deliver English lessons on a contract
 
-#### *Dive Centre Manager & Scuba Instructor-The Dive Adventure, Koh Chang, Thailand
+#### *Dive Centre Manager & Scuba Instructor-The Dive Adventure, Koh Chang, Thailand*
 * taught a wide range of customers how to dive safely and responsibly 
 * ensured all equipment was in good working order
 * managed a number of staff to ensure smooth running of business 
 * day to day management of business
 
-#### *IT Logistics - BMW, Oxford, UK
+#### *IT Logistics - BMW, Oxford, UK*
 * loaded and unloaded specialised goods and supplies using counterbalance FLTs 
 * ensured lorries were loaded and loaded in appropriate timescales 
 * checked all goods on delivery to ensure correct quantities and also for damage 
