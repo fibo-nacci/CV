@@ -2,9 +2,9 @@
 
 ### PERSONAL STATEMENT 
 * I am an enthusiastic, motivated and adaptable individual who is capable of following instructions effectively and efficiently
-*  I am a friendly person who has demonstrated an ability to work well in a team or individually to meet targets and who enjoys the challenge of a demanding working environment 
-*  I am versatile, reliable and keen to learn new skills and undertake further training 
-*  I am currently seeking an opportunity to utilise skills and experience
+* I am a friendly person who has demonstrated an ability to work well in a team or individually to meet targets and who enjoys the challenge of a demanding working environment 
+* I am versatile, reliable and keen to learn new skills and undertake further training 
+* I am currently seeking an opportunity to utilise skills and experience
 
 ### WORK EXPERIENCE
 ####  Bike Mechanic, Margaret Carey Foundation
@@ -52,8 +52,8 @@
 * full clean driving licence 
 * smart and well presented together with courteous and helpful manner 
 * flexible approach to working hours to suit the needs of the business
-*  manage time & work load, learn independently, communicate & use IT effectively 
-*  work as part of a team and take on responsibility • manage, organise and evaluate different approaches to problem solving 
-*  fit, active and capable of lifting heavy loads
+* manage time & work load, learn independently, communicate & use IT effectively 
+* work as part of a team and take on responsibility • manage, organise and evaluate different approaches to problem solving 
+* fit, active and capable of lifting heavy loads
 
 ### REFERENCES AVAILABLE UPON REQUEST
