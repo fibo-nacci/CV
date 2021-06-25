@@ -7,18 +7,18 @@
 *  I am currently seeking an opportunity to utilise skills and experience
 
 ### WORK EXPERIENCE
-####  Bike Mechanic Margaret Carey Foundation, 
+####  Bike Mechanic, Margaret Carey Foundation
 * inspected bicycles on arrival, analysed problems and suggested solutions 
 * recycled bicycles, replaced and repaired bicycles parts 
 * undertook safety and quality checks 
 * operated an electronic till and took customer payment 
 * provided excellent customer service in order to encourage repeat business
 
-#### Track and Signal Maintenance Crew Worth Valley Railway
+#### Track and Signal Maintenance Crew, Worth Valley Railway
 * undertook both light and heavy track engineering work 
 * ensured personal safety and that of others
 
-#### Motorhome Park Maintenance Contractor Self Employed 
+#### Motorhome Park Maintenance Contractor, Self Employed 
 * ensured site complied with health and safety regulations 
 * maintained services to customers’ properties 
 * security equipment monitored and serviced • repaired and cleaned communal buildings
@@ -31,12 +31,12 @@
 * taught adults in a university and corporate setting 
 * attended at international companies to deliver English lessons on a contract
 
-#### Dive Centre Manager and Scuba Instructor The Dive Adventure 
+#### Dive Centre Manager and Scuba Instructor, The Dive Adventure 
 * taught a wide range of customers how to dive safely and responsibly 
 * ensured all equipment was in good working order • managed a number of staff to ensure smooth running of business 
 * day to day management of business
 
-#### JIT Logistics BMW 
+#### JIT Logistics, BMW 
 * loaded and unloaded specialised goods and supplies using counterbalance FLTs 
 * ensured lorries were loaded and loaded in appropriate timescales 
 * checked all goods on delivery to ensure correct quantities and also for damage 
