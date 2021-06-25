@@ -1,4 +1,3 @@
-# RICHARD INGLE 
 # Bingley 
 # 618g@gmx.com 
 # 07592991018
@@ -7,7 +6,12 @@
 I am an enthusiastic, motivated and adaptable individual who is capable of following instructions effectively and efficiently I am a friendly person who has demonstrated an ability to work well in a team or individually to meet targets and who enjoys the challenge of a demanding working environment I am a versatile, reliable and keen to learn new skills and undertake further training I am currently seeking an opportunity to utilise skills and experience
 
 # WORK EXPERIENCE
-Bike Mechanic Margaret Carey Foundation, Shipley - 2014 to Present • inspected bicycles on arrival, analysed problems and suggested solutions • recycled bicycles, replaced and repaired bicycles parts • undertook safety and quality checks • operated an electronic till and took customer payment • provided excellent customer service in order to encourage repeat business
+##  Bike Mechanic Margaret Carey Foundation, 
+## Shipley - 2014 to Present 
+* inspected bicycles on arrival, analysed problems and suggested solutions 
+* recycled bicycles, replaced and repaired bicycles parts • undertook safety and quality checks 
+* operated an electronic till and took customer payment 
+* provided excellent customer service in order to encourage repeat business
 
 Track and Signal Maintenance Crew Worth Valley Railway, Keighley - 2012 to 2014 • undertook both light and heavy track engineering work • ensured personal safety and that of others
 
