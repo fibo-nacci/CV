@@ -42,9 +42,9 @@
 * checked all goods on delivery to ensure correct quantities and also for damage 
 * stored all goods in racking systems • transported goods around the factory area
 
-### CERTIFICATIONS / LICENSES
+### CERTIFICATIONS / LICENCES
 * BTEC Level 2 Horticulture 
-* First Aid at Wore 
+* First Aid at Work
 * CSCS (Construction Skills Certification Scheme)
 
 ### KEY SKILLS
