@@ -1,7 +1,5 @@
 ### **BINGLEY, WEST YORKSHIRE - 07592991018 - 618G@GMX.COM**
 
-***
-
 ### **PERSONAL STATEMENT** 
 * I am an enthusiastic, motivated and adaptable individual who is capable of following instructions effectively and efficiently
 * I am a friendly person who has demonstrated an ability to work well in a team or individually to meet targets and who enjoys the challenge of a demanding working environment 
