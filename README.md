@@ -1,6 +1,4 @@
-### Bingley, West Yorkshire
-### 07592991018
-### 618g@gmx.com
+### Bingley, West Yorkshire - 07592991018 - 618g@gmx.com
 
 ### PERSONAL STATEMENT 
 * I am an enthusiastic, motivated and adaptable individual who is capable of following instructions effectively and efficiently
