@@ -23,7 +23,7 @@
 * maintained services to customers’ properties 
 * security equipment monitored and serviced • repaired and cleaned communal buildings
 
-#### TESOL Tutor ECC, Bangkok and Chiang Mai Thailand 
+#### TESOL Tutor, ECC Bangkok and Chiang Mai Thailand 
 * taught a wide range of customers from children to adults 
 * prepared teaching lesson plans and then delivered in the classroom 
 * ensured students were on course for measurable results 
@@ -31,7 +31,7 @@
 * taught adults in a university and corporate setting 
 * attended at international companies to deliver English lessons on a contract
 
-#### Dive Centre Manager and Scuba Instructor, The Dive Adventure 
+#### Dive Centre Manager and Scuba Instructor, The Dive Adventure Koh Chang Thailand
 * taught a wide range of customers how to dive safely and responsibly 
 * ensured all equipment was in good working order
 * managed a number of staff to ensure smooth running of business 
