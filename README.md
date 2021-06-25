@@ -1,6 +1,6 @@
-# Bingley 
-# 618g@gmx.com 
-# 07592991018
+## Bingley 
+## 618g@gmx.com 
+## 07592991018
 
 # PERSONAL STATEMENT 
 * I am an enthusiastic, motivated and adaptable individual who is capable of following instructions effectively and efficiently
@@ -31,9 +31,16 @@
 * monitored progress, provided mock tests and entered into final examinations • 
 * taught adults in a university and corporate setting • attended at international companies to deliver English lessons on a contract
 
-### Dive Centre Manager and Scuba Instructor The Dive Adventure, Koh Chang Thailand - 2003 to 2006 • taught a wide range of customers how to dive safely and responsibly • ensured all equipment was in good working order • managed a number of staff to ensure smooth running of business • day to day management of business
+### Dive Centre Manager and Scuba Instructor The Dive Adventure 
+* taught a wide range of customers how to dive safely and responsibly • 
+* ensured all equipment was in good working order • managed a number of staff to ensure smooth running of business • 
+* day to day management of business
 
-JIT Logistics BMW, Oxford - 2000 to 2006 • loaded and unloaded specialised goods and supplies using counterbalance FLTs • ensured lorries were loaded and loaded in appropriate timescales • checked all goods on delivery to ensure correct quantities and also for damage • stored all goods in racking systems • transported goods around the factory area
+### JIT Logistics BMW 
+* loaded and unloaded specialised goods and supplies using counterbalance FLTs • 
+* ensured lorries were loaded and loaded in appropriate timescales • 
+* checked all goods on delivery to ensure correct quantities and also for damage • 
+* stored all goods in racking systems • transported goods around the factory area
 
 # CERTIFICATIONS / LICENSES
 BTEC Level 2 Horticulture - Shipley College First Aid at Work - Shipley College CSCS (Construction Skills Certification Scheme) March 2022
