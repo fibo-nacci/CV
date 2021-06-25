@@ -2,13 +2,13 @@
 ## 618g@gmx.com 
 ## 07592991018
 
-# PERSONAL STATEMENT 
+## PERSONAL STATEMENT 
 * I am an enthusiastic, motivated and adaptable individual who is capable of following instructions effectively and efficiently
 *  I am a friendly person who has demonstrated an ability to work well in a team or individually to meet targets and who enjoys the challenge of a demanding working environment 
 *  I am a versatile, reliable and keen to learn new skills and undertake further training 
 *  I am currently seeking an opportunity to utilise skills and experience
 
-# WORK EXPERIENCE
+## WORK EXPERIENCE
 ###  Bike Mechanic Margaret Carey Foundation, 
 * inspected bicycles on arrival, analysed problems and suggested solutions 
 * recycled bicycles, replaced and repaired bicycles parts • undertook safety and quality checks 
@@ -42,10 +42,10 @@
 * checked all goods on delivery to ensure correct quantities and also for damage • 
 * stored all goods in racking systems • transported goods around the factory area
 
-# CERTIFICATIONS / LICENSES
+## CERTIFICATIONS / LICENSES
 BTEC Level 2 Horticulture - Shipley College First Aid at Work - Shipley College CSCS (Construction Skills Certification Scheme) March 2022
 
-# ADDITIONAL INFORMATION
+## ADDITIONAL INFORMATION
 ### Key Skills 
 * full clean driving licence • 
 * smart and well presented together with courteous and helpful manner • 
@@ -53,4 +53,4 @@ BTEC Level 2 Horticulture - Shipley College First Aid at Work - Shipley College 
 *  manage time & work load, learn independently, communicate & use IT effectively • 
 *  work as part of a team and take on responsibility • manage, organise and evaluate different approaches to problem solving • fit, active and capable of lifting heavy loads
 
-# REFERENCES AVAILABLE UPON REQUEST
+## REFERENCES AVAILABLE UPON REQUEST
