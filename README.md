@@ -5,6 +5,7 @@
 * I am a friendly person who has demonstrated an ability to work well in a team or individually to meet targets and who enjoys the challenge of a demanding working environment 
 * I am versatile, reliable and keen to learn new skills and undertake further training 
 * I am currently seeking an opportunity to utilise skills and experience
+***
 
 ### **WORK EXPERIENCE**
 ####  *Bike Mechanic - Margaret Carey Foundation, Shipley, UK*
