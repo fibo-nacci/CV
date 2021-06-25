@@ -47,10 +47,7 @@
 * First Aid at Wore 
 * CSCS (Construction Skills Certification Scheme)
 
-
-
-
-### Key Skills 
+### KEY SKILLS
 * full clean driving licence 
 * smart and well presented together with courteous and helpful manner 
 * flexible approach to working hours to suit the needs of the business
