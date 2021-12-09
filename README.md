@@ -7,7 +7,7 @@
 * I am currently seeking an opportunity to utilise skills and experience
 
 ### **WORK EXPERIENCE**
-####  *Bike Mechanic - Margaret Carey Foundation, Shipley, UK*
+####  *Bike Mechanic - Margaret Carey Foundation, Shipley, UK
 * inspected bicycles on arrival, analysed problems and suggested solutions 
 * recycled bicycles, replaced and repaired bicycles parts 
 * undertook safety and quality checks 
