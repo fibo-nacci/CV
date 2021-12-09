@@ -6,8 +6,6 @@
 * I am versatile, reliable and keen to learn new skills and undertake further training 
 * I am currently seeking an opportunity to utilise skills and experience
 
-***
-
 ### **WORK EXPERIENCE**
 ####  *Bike Mechanic - Margaret Carey Foundation, Shipley, UK*
 * inspected bicycles on arrival, analysed problems and suggested solutions 
@@ -45,14 +43,10 @@
 * checked all goods on delivery to ensure correct quantities and also for damage 
 * stored all goods in racking systems • transported goods around the factory area
 
-***
-
 ### **CERTIFICATIONS / LICENCES**
 * BTEC Level 2 Horticulture 
 * First Aid at Work
 * CSCS (Construction Skills Certification Scheme)
-
-***
 
 ### **KEY SKILLS**
 * full clean driving licence 
@@ -61,7 +55,5 @@
 * manage time & work load, learn independently, communicate & use IT effectively 
 * work as part of a team and take on responsibility • manage, organise and evaluate different approaches to problem solving 
 * fit, active and capable of lifting heavy loads
-
-***
 
 ### **REFERENCES AVAILABLE UPON REQUEST**
